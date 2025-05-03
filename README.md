@@ -1,7 +1,7 @@
 
 <p align="center">
  $\Large\color{#19e337}{\textsf{₆.₂₈.₂₄}}$ <br>
-<img style="width: 40%; height: 70%" src="https://file.garden/ZwwJTXO4W1VL_e-Z/fallout"> <br>
+<img style="width: 57%; height: 70%" src="https://file.garden/ZwwJTXO4W1VL_e-Z/fallout"> <br>
 $\Huge\color{#19e337}{\textsf{⌁ frequent identity changes ⌁}}$	<br>
 $\Huge\color{#19e337}{\textsf{i block loosely}}$	<br>
 <p align="center">
